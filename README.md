@@ -23,4 +23,4 @@ Me especializo en la intersección entre la comunicación institucional y la tec
 ---
 
 ### 📫 Conectemos
-- [LinkedIn](www.linkedin.com/in/natalia-vanesa-herrera-449956264)
+- [LinkedIn](https://www.linkedin.com/in/natalia-vanesa-herrera-449956264/)
